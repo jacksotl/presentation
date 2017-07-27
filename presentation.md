@@ -16,6 +16,8 @@ First off Tupac was better than Biggie. I will fight you and your mama too on th
 Brenda's Got a Baby, Dear Mama, and Keep Ya Head, how could you not love him?
 </aside>
 
+# Aaliyah
+
 <aside class="notes">
 Next we have Aaliyah a.k.a. baby girl. She was a talented...beautiful icon that was taken away from us too soon.
 </aside>
