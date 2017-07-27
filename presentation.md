@@ -11,6 +11,12 @@ Everything from overalls.... baggy clothes... and combat boots.
 
 # Music
 
+<aside class="notes">
+Music in the 90s paved the way for many artists today. Two noteworthy artists are Tupac and Aaliyah. 
+</aside>
+
+
+# Tupac
 <aside class="notes"> 
 First off Tupac was better than Biggie. I will fight you and your mama too on that. With hits like
 Brenda's Got a Baby, Dear Mama, and Keep Ya Head, how could you not love him?
