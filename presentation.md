@@ -48,6 +48,8 @@ Now don't come for my head if I don't mention your favorite cartoons. There were
 few: Rugrats, Doug, Hey Arnold, Powerpuff girls, Maggie and the Ferocious Beast, Amby and Dex, Daria, Cow and Chicken, basically anything from Nickelodeoneon and Cartoon network was LIT AF!
 </aside>
 
+# August 22, 1995
+
 <aside class="notes">
 And last but certaintly not least. I was born in 90s. August 22 I came into this world. Causing havoc and asking
 my mom a million questions about why the sky was blue and why I had to go to bed so early.
